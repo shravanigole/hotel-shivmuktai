@@ -1,5 +1,5 @@
 Hotel Shivmuktai
-Overview
+
 Welcome to Hotel Shivmuktai, a luxurious and serene getaway offering spacious accommodations, breathtaking scenic field and valley views, and premium amenities. Perfectly suited for families or groups, our bungalow provides an unforgettable experience with all the comfort and luxury you need for a relaxing stay.
 
 Property Details
